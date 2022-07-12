@@ -11,7 +11,8 @@
 Facebook:-
 https://www.facebook.com/sujal.kansara.376
 
-<!---
-Sujalkansara/Sujalkansara is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Instagram:-
+
+Twitter:-
+https://twitter.com/Mr_Kansara143?t=deHTlDJrpLf8Co_1HUB8Zw&s=09
+
